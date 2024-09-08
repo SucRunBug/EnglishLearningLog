@@ -16,7 +16,7 @@ This video explains why playing games can improve one's English proficiency. Thi
 
 ## Black Myth WuKong
 
-Reference link: https://www.bilibili.com/video/BV1aw4m1k7s1/
+> Reference link: https://www.bilibili.com/video/BV1aw4m1k7s1/
 
 ### Media evaluation 
 
@@ -83,3 +83,30 @@ The story follows the journey of the monk 玄奘法师(Master Xuanzang)(aka. 唐
 - Weapons: Wukong's weapon is called 如意金箍棒 (Ru Yi Jin Gu Bang = the Golden Staff) 
 - Trick - 72 Transformations: Wukong is able to shapeshift into more than 72 different creatures (72 is for exaggeration). I think in the game you can also shapeshift into other animals to solve puzzles? 
 
+> Reference link: https://www.bilibili.com/video/BV1DQpveeEV9
+
+"Impressive AAA game from China!", Elon Musk writed a post on X.
+
+The corrected sentence should be:
+
+"Impressive AAA game from China!" Elon Musk wrote in a post on X.
+
+DEI = Diversity, Equity, Inclusion 多样性、公平性、包容性
+
+The title of a article called "How Black Myth: Wukong Developer's History of Sexism Is Complicating its Journey to the West" showing bais from DEI.
+
+The title "How Black Myth: Wukong Developer's History of Sexism Is Complicating its Journey to the West" could be interpreted as showing bias from a DEI.
+
+Rumor - Black Myth: Wukong devs reject $7 million 'extortion' from DEI consultants. Details below.
+
+extortion 敲诈
+
+The game "Black Myth: Wukong" was labeled "Lacking Diversity", "Sexism", "Anti-DEI" and "Lacking Inclusivity" by DEI.
+
+I'm gonna buy 2 copies and gift one to friend.
+
+Black Myth Wukong is a wake up call.
+
+Wake up call 一记警钟
+
+pirate n.海盗 v.剽窃 

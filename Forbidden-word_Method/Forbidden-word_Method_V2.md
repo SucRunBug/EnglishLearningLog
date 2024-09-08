@@ -1,12 +1,10 @@
-# Forbidden-word Method V1
+# Forbidden-word Method V2
 
 > Core: Forbidden word method combined with reward mechanism
 
 - Do **NOT** use PC and mobile phone for entertainment
 
 - **Only** Mac is allowed for English learning
-
-- Internet access over the Wall is **NOT** allowed
 
 - NSFW content is **NOT** allowed
 
