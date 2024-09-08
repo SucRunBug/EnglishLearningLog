@@ -94,3 +94,89 @@ www.wikipedia.com
 Biography/Who is ...
 
 Such as *Who was Steve Jobs*
+
+
+
+## P4 New Words
+
+### how to learn a new word
+
+Using English Dictionary
+
+learn forms, finding and learning a word with its all forms, such as learn/learning/learned
+
+learn a word in context
+
+Example: There seemed to be a direct correlation between the number of babies born and the health standards in that area. 
+
+If we don't know "correlation" in the sentense, look up it and find out it is a n., and we find that its verb form is "correlate", and we find out it has adjective form "correlated"
+
+correlated-correlate-correlation
+
+And we can find out the definition of this word is "a connection" or "a relationship"
+
+再从上下文中the number of babies born and the health standards推断意思，把同义词放进去看是否通顺
+
+再造几个新句子来使用新学会的词：
+
+I wonder if there is a correlation between happiness and income.
+
+Global warming and natural disasters are obviously correlated.
+
+造完句后还需要检查是否正确
+
+这就是学习一个单词的全过程：通过上下文推测、查英文字典查看释义、将同义词放入原文看是否通顺、了解所有形式、用新学的词造几个类似的句子、检测句子是否正确。
+
+"But the struggle, the difficulty is what makes it stick in your mind."
+
+## P5 Idioms
+
+### Explain
+
+An idiom is a special phrase
+
+根据文化有所不同
+
+### Example
+
+常见的一个Idioms: over the top
+
+意思是too much
+
+比如join interview面试，穿的tuxedo燕尾服，可以说that suit is over the top
+
+Idioms 是不能随便用的，要特定人群、特定场合下说出一种绕弯子、话里有话的感觉。
+
+再学一个：one in a million
+
+这个one就是unique, special, rare, precious
+
+使用于描述人时会更好，代表自己的主观感受。
+
+My wife is one in a million.
+
+My wife is unique. 这里的unique可能有多个含义：strange, unusual，它的内涵connotations有很多，所以使用起来比较危险。
+
+但当描述口音时使用Your accent is unique.会好一些，可能表示口音interesting or silly
+
+## P6 4-Word Exercise
+
+帮助英语思维的练习：首先写下四个单词
+
+Stable, Stick, Common, across
+
+建议包含nouns, adjectives, verbs, adverbs
+
+名词、形容词、动词、副词
+
+然后将这四个词放入一个句子中，当然，这四个词可以是不同的forms
+
+示例：As a common rule, I'd say sticking to your plans will make you come across as a stable person to others.
+
+I thought I'd come across just a common stick, but if was actually part of a fence used in prehistoric stables.
+
+我的练习：I used some sticks to stablize my common house across the big river.
+
+这句话存在以下语法错误： 1. “stablize”拼写错误，应为“stabilize”； 2. “common house”表述不太准确，可以改为“ordinary house”或“simple house”等更恰当的表达； 3. “across the big river”前缺少谓语动词，可改为“located across the big river”。 修改后的句子：I used some sticks to stabilize my ordinary house located across the big river.
+
+I signed up a accountant in a stange website, and find a video which recording a ship beneath the water. 
