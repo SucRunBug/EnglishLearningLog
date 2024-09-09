@@ -110,3 +110,43 @@ Black Myth Wukong is a wake up call.
 Wake up call 一记警钟
 
 pirate n.海盗 v.剽窃 
+
+> Reference link: https://www.bilibili.com/video/BV18bpFeYEyJ
+
+My Master - safe! The Scriptures - sound!
+
+Safe and sound phr.安然无恙
+
+evocation v.招魂，想让人想到某人事物
+
+I got home safe and sound.
+
+They got into the airport safe and sound.
+
+All I ever wanted was a life in my mountain, free from you, and your so-called merits.
+
+All I ever wanted was 我一直唯一想要的就是...
+
+All I ever wanted was to pass the ILETS test.
+
+All I ever wanted was to have a good computer.
+
+He's not just any monkey. 他不是只普通猴子
+
+He's not just any 他不是个不同的 +n.
+
+He's not just any programmar. He's the guy who hacked the Google.
+
+He's not just any English teacher. He teaches poor children in the mountain.
+
+bend the knee 下跪& bend the knees 效忠
+
+It's awful and forced. Original mandarin version is way better.
+
+forced adj.刻意、不自然
+
+I.M.O. == In my opinion
+
+raise the bar phr.提高门槛、水准、要求
+
+nostalgia 怀旧
