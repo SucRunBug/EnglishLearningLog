@@ -150,3 +150,7 @@ I.M.O. == In my opinion
 raise the bar phr.提高门槛、水准、要求
 
 nostalgia 怀旧
+
+> Reference link: https://www.bilibili.com/video/BV1Qz421i7yG
+
+debunk this garbage 戳穿这垃圾谎言

@@ -180,3 +180,52 @@ I thought I'd come across just a common stick, but if was actually part of a fen
 这句话存在以下语法错误： 1. “stablize”拼写错误，应为“stabilize”； 2. “common house”表述不太准确，可以改为“ordinary house”或“simple house”等更恰当的表达； 3. “across the big river”前缺少谓语动词，可改为“located across the big river”。 修改后的句子：I used some sticks to stabilize my ordinary house located across the big river.
 
 I signed up a accountant in a stange website, and find a video which recording a ship beneath the water. 
+
+## P7 Variations
+
+**改写练习原句**：I think it might take a few days for me to help you book your tickets.
+
+**My practice**: I guess it would take some days for me to purchase tickets for you.
+
+**Techear's examples**:
+
+I think I can have your tikets booked in a few days.
+
+Give me a few days to book your tickets.
+
+I can reserve your tickets if you like, but it might take a few days.
+
+If you give me a few days, I can book your tickets.
+
+这几个句子的connotation内涵都有些区别，比如内涵自己是否真的答应别人订票，以及是否礼貌，但我觉得没有必要追求特别多的逻辑，多读几遍感受就行。
+
+总之，练习的方式就是找一个喜欢的句子，看自己能改写成多少不同的句子，并维持意思大致相同。
+
+## P8 Full Variations
+
+**改写练习原句：**
+
+Adele had been living on the West coast, in California, for about six years,so when she finally decided to come home, there was a huge reception.It seemed strange to her that, even though so much time had passed, nothing much had changed. The old house looked the same,and so did her family. She spent a week catching up visiting relatives before going back to California.She told herself she wouldn't let another six years passbefore seeing them again.
+
+events, what happened
+
+**我的练习：**
+
+Adele had been living on the West coast, in California, for about six years. And she finally decided to back her own home to catch up with relatives. While she got there, she meet a bunch of familar people in her home. And she found nothing changed in these years. Before she back to California, she told her relatives that she would back regularly.
+
+**Here’s a refined version of your text with improved grammar:**
+
+"Adele had been living on the West Coast, in California, for about six years. She finally decided to return to her hometown to catch up with relatives. When she arrived, she met a bunch of familiar people at her home and found that nothing had changed over the years. Before going back to California, she told her relatives that she would visit regularly."
+
+**Changes made:**
+1. Changed "decided to back her own home" to "decided to return to her hometown."
+2. Replaced "While she got there" with "When she arrived."
+3. Corrected "meet" to "met" for past tense consistency.
+4. Corrected "familar" to "familiar."
+5. Reworded "Before she back to California" to "Before going back to California."
+6. Used "visit" instead of "back" for clarity in the final sentence.
+
+
+**Teacher's example:**
+
+Six years had passed in California since Adele had last seen her family, and at last she decided to go home for a visit.  She was totally shocked when she got there.  Her whole family had a gathering to welcome her.  Surprisingly, everything seemed unchanged.  After a week seeing extended family, she headed back to the West coast and made a mental note that she would soon go back for a visit.
