@@ -229,3 +229,9 @@ Adele had been living on the West coast, in California, for about six years. And
 **Teacher's example:**
 
 Six years had passed in California since Adele had last seen her family, and at last she decided to go home for a visit.  She was totally shocked when she got there.  Her whole family had a gathering to welcome her.  Surprisingly, everything seemed unchanged.  After a week seeing extended family, she headed back to the West coast and made a mental note that she would soon go back for a visit.
+
+## P9 Listening
+
+用一个30秒到最多1分钟的英文音频片段来练习听力，这个片段难度很大，一开始听只能听懂20-30%，通过反复听，最后要能听懂80%以上。练习时有个笔记本来记录听到的内容。
+
+## P10 Listening Practice
