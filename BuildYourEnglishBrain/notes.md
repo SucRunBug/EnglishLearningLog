@@ -235,3 +235,5 @@ Six years had passed in California since Adele had last seen her family, and at 
 用一个30秒到最多1分钟的英文音频片段来练习听力，这个片段难度很大，一开始听只能听懂20-30%，通过反复听，最后要能听懂80%以上。练习时有个笔记本来记录听到的内容。
 
 ## P10 Listening Practice
+
+The dire American education system has spawned a wide range of proposals and half baked solutions. The core of the problem according to most is a test oriented system which has become increasingly narrow and stringent in recent years. The difficulty is finding an applicable alternative, any viable model of teaching and evaluating students would have to be both inclusive and comprehensive. Well, at the same time recognizing individual achievement. Whatever the case, most officials and leaders have concluded that the current problem doesn't lie in the hands of the teachers, but rather than the standards handed down by the education board.
