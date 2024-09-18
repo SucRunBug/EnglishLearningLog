@@ -237,3 +237,110 @@ Six years had passed in California since Adele had last seen her family, and at 
 ## P10 Listening Practice
 
 The dire American education system has spawned a wide range of proposals and half baked solutions. The core of the problem according to most is a test oriented system which has become increasingly narrow and stringent in recent years. The difficulty is finding an applicable alternative, any viable model of teaching and evaluating students would have to be both inclusive and comprehensive. Well, at the same time recognizing individual achievement. Whatever the case, most officials and leaders have concluded that the current problem doesn't lie in the hands of the teachers, but rather than the standards handed down by the education board.
+
+因为太快了，只能一句一句反复听，然后写下来，然后用了飞书妙记给识别出来校对，校对后查不会的词，然后再反复多听几遍。我也不清楚这样有没有用。
+
+## P11 Thinking Exercises
+
+Force you thinking in english, such as describ what you see out the window, what you feel and what might happen next. And make it to your habit.
+
+Luke illustrated an example for me, if i want to try think in english, i can describ eveything i watch and its details.
+
+## P12 Writing
+
+建议每天都要有10分钟来练习写作
+
+### Things to Remember
+
+- Punctuation is key. '.' is period and ',' is common
+- syntax (grammar) try to change different syntax (write a new version after finish one)
+- specific adjectives (e.g. good at speaking - articulate) do not use simple word
+- explore vocab(use the new words that you learn correctly)
+- check it(make revisions)
+
+### Writing Prompts
+- What's your plan for the week?
+- Describe something unusual that happened yesterday.
+- Describe a movie you watched recently.
+- Diary
+
+## P13 Movies
+
+### Passive way
+
+watching movie or TV show with subtitles of your own language.
+
+But it is really slow to make progress.
+
+### Recommend
+
+Anime: Pixar's movies, like Finding Nemo, Cars and Monsters' Inc.
+
+TV show: Friends
+
+movie: Harry Potter
+
+documentary: Planet Earth
+
+### Active way
+
+choose a movie you know well, watch that movie without subtitles, and take notes like what you hear or a new word you learn.
+
+## P14 The Internet
+
+### For listening/learning
+
+[TED](https://www.ted.com)
+
+[Coursera](https://www.coursera.org)
+
+[cloudenglish](https://www.cloudenglish.net)
+
+### current events/articles/culture
+
+[reddit](https://www.reddit.com)
+
+[huffpost](https://www.huffpost.com)
+
+[wikipedia](https://www.wikipedia.org)
+
+[engadget](https://www.engadget.com)
+
+### community
+
+[reddit](https://www.reddit.com)
+
+[Quora](https://www.quora.com)
+
+## P15 Routine and Attitude
+
+### Daily Routine
+
+Morn: 
+
+- 10-minutes writing prompt or diary
+- 10-minutes 4-word or variations
+
+Travel:
+
+- Listening to MP3 with a notebook
+
+Bored:
+
+- Describing things in your mind
+
+Night:
+
+- 30-minutes reading/learning words
+- Browse online or watch movie
+
+### Attitude
+
+- confidence (do not focus on your bad side)
+- No fear (jump out comfort zone)
+- nobody is perfect
+- enjoy it (hate would not help you)
+
+## P16 Summary
+
+Just a summary for all the course
