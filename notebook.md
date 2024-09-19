@@ -48,27 +48,25 @@ I sweated a lot while cycling.
 
 they were knee-hign to a grasshopper
 
-bugging
+catastrophe /kəˈtæstrəfi/ <-> disaster
 
-catastrophe
-
-my mind was buzzing once I saw that
+my mind was buzzing once I saw that (buzzing bee)
 
 wall-to-wall coverage
 
 gibbering on about sth.
 
-the latest celebrity gossip
+the latest celebrity gossip /ˈgɒsɪp/
 
-big label
+big label (trade name of a company that produces musical recordings)
 
 breach of contract
 
-everything they said was so over my head I can't even remember...
+Everything they said was so over my head, I can't even remember...
 
-stump up for someone's debts.
+stump up for someone's debts. /stəmp/ /dɛt/
 
-I can't let anyone try and besmirch their honor.
+I can't let anyone try and besmirch their honor. /bɪˈsmʌrtʃ/
 
 When I vaguely come to my senses every now and again, another few years have passed by.
 
