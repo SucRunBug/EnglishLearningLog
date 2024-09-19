@@ -45,3 +45,55 @@ while watching
 no apparent reason
 
 I sweated a lot while cycling.
+
+they were knee-hign to a grasshopper
+
+bugging
+
+catastrophe
+
+my mind was buzzing once I saw that
+
+wall-to-wall coverage
+
+gibbering on about sth.
+
+the latest celebrity gossip
+
+big label
+
+breach of contract
+
+everything they said was so over my head I can't even remember...
+
+stump up for someone's debts.
+
+I can't let anyone try and besmirch their honor.
+
+When I vaguely come to my senses every now and again, another few years have passed by.
+
+I took out a loan and got a second-hand GPU.
+
+take a stroll around somewhere
+
+I couldn't help bickering with sb.
+
+change his grumpy ways.
+
+fell out with someone
+
+audacity
+
+plastered full of posters
+
+adjacent makeup stations
+
+There's quite a lot of scattered makeup and feminine accessories.
+
+footage
+
+Rhodes trembles, his lips taut as he fights back tears.
+
+tend to their graves
+
+I shouldn't have said all this baloney.
