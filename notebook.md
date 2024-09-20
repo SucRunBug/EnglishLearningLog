@@ -95,3 +95,79 @@ Rhodes trembles, his lips taut as he fights back tears.
 tend to their graves
 
 I shouldn't have said all this baloney.
+
+## 20
+
+comprehensive school
+
+instant coffee
+
+you stumble across sth.
+
+some appear tense and grim
+
+shoot and upload my awesome reel
+
+you've got the right look and vibe
+
+Wanna have a go at playing the lead in my skit?
+
+cunning and nasty
+
+She may be this average Joe working in some office by day.
+
+daredevil
+
+brutal
+
+But what I see is someone who, despite never harming a fly, has this other side that's profoundly mysterious.
+
+Is that really a compliment?
+
+It's always nerve-wracking, the first time you read through a script.
+
+go through some lines with me
+
+rehearse some lines for ...(a script)
+
+sb. owe it all to me
+
+the big bad kingpin
+
+stare flabbergasted at sb.
+
+sketching an outline
+
+As the lead, you're welcome to shake things up as you like!
+
+I could shake up the script for you!
+
+screenwriters
+
+That's an offer I only make to top-notch quality actors.
+
+flash of inspiration
+
+If only I had some fresh new source material to watch -- that would fire up the creative juices.
+
+You leave me green with envy.
+
+I've seen the lion's share of the mainstream films.
+
+gritty real life footage
+
+genuine scenes
+
+It was absolutely chilling and enough to give a burst of inspiration!
+
+You shouldn't watch objectionable material of questionable origin.
+
+I'm in desperate need of sth.
+
+Time is of the essence now!
+
+play a cameo role
+
+a ray of hope beaming down upon this desperate life of mine!
+
+scrutinize a video
