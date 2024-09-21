@@ -1,6 +1,6 @@
 This is a notebook of english learning.
 
-I will record new words, phrase, sentense, syntax and interesting knowledge about english I have learned.
+I will record new words, phrases, sentences, syntax and interesting knowledge about English that I have learned.
 
 ## 24.09.17
 
@@ -54,7 +54,7 @@ my mind was buzzing once I saw that (buzzing bee)
 
 wall-to-wall coverage
 
-gibbering on about sth.
+gibbering on about sth. gibber /ˈdʒɪbər/ - speak (about unimportant matters) rapidly and incessantly
 
 the latest celebrity gossip /ˈgɒsɪp/
 
@@ -68,21 +68,21 @@ stump up for someone's debts. /stəmp/ /dɛt/
 
 I can't let anyone try and besmirch their honor. /bɪˈsmʌrtʃ/
 
-When I vaguely come to my senses every now and again, another few years have passed by.
+When I vaguely (unclearly) come to my senses (return to consciousness) every now and again (occasionally), another few years have passed by. /ˈveɪgli/
 
-I took out a loan and got a second-hand GPU.
+I took out a loan and got a second-hand GPU. /ləʊn/
 
-take a stroll around somewhere
+take a stroll (leisurely walk) around somewhere
 
-I couldn't help bickering with sb.
+I couldn't help bickering (a quarrel about petty points) with sb. /ˈbɪkərɪŋ/
 
-change his grumpy ways.
+change his grumpy (irritable) ways /ˈgrʌmpi/ - When your friend suggests a restaurant but you’re in a bad mood so you say “That’s a stupid restaurant”, then you’re being grumpy
 
-fell out with someone
+fell out with someone - She fell out with her best friend over (due to/because of) a misunderstanding.
 
-audacity
+audacity /ɔˈdæsɪti/ noun - If you have audacity then you're one daring — and perhaps reckless — character.
 
-plastered full of posters
+plastered (covered) full of posters /ˈplæstərd/ adj.
 
 adjacent makeup stations
 
@@ -199,3 +199,37 @@ a noise-canceling headphones
 energize - energized - raise the energy level
 
 get together - pile up
+
+He seemed to be a bit of a funk.
+
+muttering
+
+peek inside
+
+infrared camera
+
+I couldn't find my bearings at all.
+
+voices from unknown sources were picked up in the video recorded here.
+
+the towers collapsed
+
+stormed into
+
+My eyes are a little sore now.
+
+Rhodes' eyes glisten with tears as he shivers all over.
+
+He lingers awhile.
+
+Jane squints to look at sth.
+
+soaked
+
+drainage area
+
+wade through water
+
+I can't pull the wool over your eyes.
+
+laundromat
