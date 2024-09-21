@@ -171,3 +171,31 @@ play a cameo role
 a ray of hope beaming down upon this desperate life of mine!
 
 scrutinize a video
+
+## 21
+
+efficiency /ɛˈfɪʃɛnsi/ - She did the work with great efficiency. efficiency
+
+I use a stand to hold the microphone upright.
+
+absorb
+
+based on the memory curve
+
+consistent wake/sleep time
+
+redundant - unnecessary
+
+when you see this word, you need repeat it! recommended recommended recommended
+
+exercise exercise
+
+kudos
+
+distractions - takes your attention away
+
+a noise-canceling headphones
+
+energize - energized - raise the energy level
+
+get together - pile up

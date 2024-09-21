@@ -28,17 +28,34 @@
 
 参考链接：https://www.bilibili.com/video/BV13v4y147P4
 
-## 语法框架
+If you can clearly identify the nouns, adjectives, and adverbs in a sentence, you have completed your grammar study.
 
-核心就是各种词性互相修饰。
+**Besides, you need to learn:**
+-  Subject, predicate, object, attributive, adverbial, complement
+-  Nouns, adjectives, adverbs
+-  The five baisc sentence patterns of simple sentence.
+  
+**Explanation:**
+
+- Adjectives are used to accompany with nouns.
+- Adverbs are used to accompany with verbs, adjectives, other adverbs.
+
+**The key point is the modification relationship between different parts of speech.**
+
+Here are some examples are as followed:
 
 ![alt text](./src/image1.png)
 
-*其中的 very 我有在游戏剧情中遇到过，当时给我整得有些懵逼，但如果用语法去分析就会好一些。可能不是介词？*
-
-## 定状补
+**About Attributive, Adverbial, Complement**
 
 可以这么理解：定语-形容词性成分，状语-副词性成分，补语-名词or形容词性成分
+
+You can understand it like this: **attributives are adjectival elements, adverbials are adverbial elements, and complements are nominal or adjectival elements**.
+
+Here is an example:
+- The book that is extremely good.
+
+It is an attributive clause, and the elements after ‘that’ act as adjectives modifying ‘book’.
 
 ## 形容词性成分1
 
