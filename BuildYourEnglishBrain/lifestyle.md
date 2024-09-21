@@ -14,6 +14,12 @@ This video explains why playing games can improve one's English proficiency. Thi
 
 # English in the game 
 
+## Honkai: Star Rail
+
+Reference link: [外国玩家热议的「崩铁绿旗男」是啥意思？谁算是绿旗男呢？](https://www.bilibili.com/video/BV1ictoemEQ6)
+
+Recently, the uploader found a post in a forum titled 'Who is the most green flag guy in HSR?' which gained a lot of attention. He became curious about the meaning of 'green flag guy' and discovered the phrase 'red flag,' which means a warning or a signal to stop. People use this phrase to describe someone with bad traits, specifically behaviors that signal a toxic partner or relationship, such as a lack of trust, pushing boundaries, feeling unsafe, or threatening others, like Boothill, a character in *HSR*. On the other hand, 'green flags' refer to indicators of healthy emotional habits and genuine compatibility, such as clear communication, showing empathy, and self-confidence. When someone has these traits, they are called a 'green flag guy' or 'green flag girl'.
+
 ## Black Myth WuKong
 
 > Reference link: https://www.bilibili.com/video/BV1aw4m1k7s1/
