@@ -72,7 +72,7 @@ When I vaguely (unclearly) come to my senses (return to consciousness) every now
 
 I took out a loan and got a second-hand GPU. /ləʊn/
 
-take a stroll (leisurely walk) around somewhere
+take a stroll (/strəʊl/ leisurely walk) around somewhere
 
 I couldn't help bickering (a quarrel about petty points) with sb. /ˈbɪkərɪŋ/
 
@@ -84,55 +84,55 @@ audacity /ɔˈdæsɪti/ noun - If you have audacity then you're one daring — a
 
 plastered (covered) full of posters /ˈplæstərd/ adj.
 
-adjacent makeup stations
+adjacent (/əˈdʒeɪsɪnt/ close to or near something) makeup stations
 
-There's quite a lot of scattered makeup and feminine accessories.
+There's quite a lot of scattered (/ˈskætəd/ spread out all over the place) makeup and feminine (/ˈfɛmɪnɪn/) accessories (/ækˈsɛsəri/ sth. to make better, like jewelry, handbags or belts).
 
-footage
+footage (/ˈfʊtɪdʒ/ a section of film or video that's been shot or recorded)
 
-Rhodes trembles, his lips taut as he fights back tears.
+Rhodes trembles (/ˈtrɛmbəl/ shake), his lips taut (/tɔt/ tight rather than slack) as he fights back tears.
 
-tend to their graves
+tend (have care of or look after) to their graves (tomb)
 
-I shouldn't have said all this baloney.
+I shouldn't have said all this baloney. (/bəˈlʌʊni/ *Baloney* is nonsense. When someone says something completely ridiculous, call it a bunch of *baloney*)
 
 ## 20
 
 comprehensive school
 
-instant coffee
+instant coffee - An *instant* is a very short time.
 
-you stumble across sth.
+you stumble (/ˈstʌmbəl/ encounter by chance) across sth. Example: *I stumbled across an old photo album while cleaning the room.* (You found the album unexpectedly while doing something else.)
 
-some appear tense and grim
+some appear tense (/tɛns/) and grim (/grɪm/) - Example: *At the meeting, some appear tense and grim, clearly worried about the outcome.* (certain people or things seem to be anxious, stressed, and serious.)
 
-shoot and upload my awesome reel
+shoot and upload my awesome reel (/ril/)
 
-you've got the right look and vibe
+you've got the right look and vibe (/vaɪb/ energy, mood, or personality)
 
-Wanna have a go at playing the lead in my skit?
+Wanna have a go at playing the lead in my skit (/skɪt/)?
 
-cunning and nasty
+cunning and nasty (/ˈnɑsti/ Something *nasty* is filthy, foul, dirty, or awful. *Nasty* isn't a word for anything nice.)
 
-She may be this average Joe working in some office by day.
+She may be this average Joe working in some office by day. (**“Average Joe”** refers to a common, everyday person who blends in and doesn’t stand out in any extraordinary way.)
 
-daredevil
+daredevil (/ˈdɛdɛvəl/ someone who is recklessly adventurous)
 
-brutal
+brutal (/ˈbrutəl/ something beastly and harsh)
 
 But what I see is someone who, despite never harming a fly, has this other side that's profoundly mysterious.
 
 Is that really a compliment?
 
-It's always nerve-wracking, the first time you read through a script.
+It's always nerve-wracking (/nəv/ /ræk/ stressful), the first time you read through a script.
 
 go through some lines with me
 
-rehearse some lines for ...(a script)
+rehearse (/rəˈhʌs/) some lines for ...(a script)
 
-sb. owe it all to me
+sb. owe it all to me (*“He became a successful musician, but he owes it all to me.”*)
 
-the big bad kingpin
+the big bad kingpin (someone who is important)
 
 stare flabbergasted at sb.
 
@@ -261,3 +261,11 @@ The past has its own appeal (attractiveness that interests or pleases or stimula
 chamber (/ˈtʃeɪmbə/) pot
 
 porcelain (/ˈpɔrs(ə)lən/ white china plates) vessel (/ˈvɛsəl/ A vessel can be a ship, a container for holding liquids, or a tube that transports blood throughout your body.)
+
+**'Can' vs 'Could':**
+
+- **Present and past tense**: For example, *“I could play computer games when I was five years old.”*
+- **Politeness**: *“Could”* is more polite, as in *“Could you help me?”* compared to *“Can you help me?”*
+- **Hypothetical possibilities**: *“Could”* is used for hypothetical situations, as in *“It could rain later.”*
+- **Suggestions**: *“Could”* is used for suggestions, as in *“We could go to the gym if it’s raining.”*
+
