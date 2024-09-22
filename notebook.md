@@ -269,3 +269,6 @@ porcelain (/ˈpɔrs(ə)lən/ white china plates) vessel (/ˈvɛsəl/ A vessel ca
 - **Hypothetical possibilities**: *“Could”* is used for hypothetical situations, as in *“It could rain later.”*
 - **Suggestions**: *“Could”* is used for suggestions, as in *“We could go to the gym if it’s raining.”*
 
+noodle joint
+
+I trust Chop Junior won't harbor any hard feelings towards you.
