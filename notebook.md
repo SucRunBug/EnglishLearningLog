@@ -233,3 +233,31 @@ wade through water
 I can't pull the wool over your eyes.
 
 laundromat
+
+## 22
+
+an antique store, antiques /ænˈtik/ (An antique is an old-fashioned thing)
+
+a 'lens' through time (A lens is a curved transparent device that bends light, like the lens of eyeglasses)
+
+peering (look searchingly) in the store
+
+Which irreverent (/ɪˈrɛvərənt/ don’t show respect) child unearthed me!
+
+patterns /ˈpætən/ Something that repeats in a predictable way is a pattern
+
+keepsake /ˌkipˈseɪk/ A keepsake is an object that has sentimental value, like a locket that belonged to your grandmother.
+
+May you be struck down by thunder!
+
+On the wooden plaque (/plæk/ a sign that memorializes a person or event) beneath the scroll (/skroʊl/ A rolled up piece of paper), densely (in a stupid manner) written repeating sentences reveal a child practicing calligraphy (/kəˈlɪgrəfi/ beautiful handwriting) with a sense of resentment (/rɪˈzɛntmɪnt/ a feeling of deep and bitter anger and ill-will).
+
+There are plenty of liars and big talkers.
+
+Whatever people think pr desire or want, it's all interconnected. (“The bones are interconnected via the muscle”)
+
+The past has its own appeal (attractiveness that interests or pleases or stimulates), yes. But this world we live in today is far more interesting, despite all the chaos that comes with.
+
+chamber (/ˈtʃeɪmbə/) pot
+
+porcelain (/ˈpɔrs(ə)lən/ white china plates) vessel (/ˈvɛsəl/ A vessel can be a ship, a container for holding liquids, or a tube that transports blood throughout your body.)
