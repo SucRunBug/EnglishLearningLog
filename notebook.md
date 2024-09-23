@@ -312,3 +312,65 @@ hammy actor
 it's got a nasty temper
 
 it throws a hissy fit and ignores me
+
+dopey look
+
+It's barely passable.
+
+so long as the plot can flow
+
+disobedient
+
+We'll chuck it down into the Hollow if it doesn't listen properly.
+
+wise up
+
+acting chops
+
+As per the deal, I'll lure that big guy over.
+
+Our dream of reaching the pinnacle of the Programmer Champs.
+
+It stormed the scene and secured a pretty high rank this season.
+
+wrestle
+
+Could you please elaborate?
+
+But I never expected that Proxy to be such an amateur!
+
+his while squad was defeated in one blow
+
+cover my retreat
+
+After a glorious winning streak in the league this year, Strongboo encountered an unprecedented defeat and lost all its will to fight.
+
+neverthelessf
+
+A little full-blooded revenge ought to rekindle Strongboo's fighting spirit!
+
+a comprehensive, scientific, and vigorous training plan
+
+spar with the strongest fighters
+
+It malfunctioned in the middle of the grand final, and Strongboo had to bow out for safety reasons.
+
+sumo
+
+Time to refill on disinfectant
+
+restock my first aid kit
+
+fitness buff
+
+You mean as opposed to a nerd?
+
+I can zone out when I'm training, and see my progress every step of the way.
+
+bragging
+
+You have to feign disinterest as you chuck it back on the shelf.
+
+got a bump or bruise
+
+band-aids
