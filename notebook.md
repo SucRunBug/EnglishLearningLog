@@ -272,3 +272,43 @@ porcelain (/ˈpɔrs(ə)lən/ white china plates) vessel (/ˈvɛsəl/ A vessel ca
 noodle joint
 
 I trust Chop Junior won't harbor any hard feelings towards you.
+
+## 23
+
+I thought I'd come and see what the fuss was all about.
+
+dough stretching
+
+The toppings also seem more generous.
+
+become drenched in sweat
+
+reach out for a napkin
+
+I guss I shouldn't be so nosy about other people's business.
+
+But since you already know, why not let me in on it as well!
+
+After gulping down a few cups of hot water, Qingyi seems to be feeling a bit better.
+
+I'm having withdrawals
+
+fancy gadgets
+
+vulnerable
+
+Feels like I've tapped into the universe's energy.
+
+You bounced back pretty fast.
+
+Truth or dare can be quite the thrill.
+
+Despite my age, I have to keep on striving for the future.
+
+All my fears have been assuaged.
+
+hammy actor
+
+it's got a nasty temper
+
+it throws a hissy fit and ignores me
