@@ -42,7 +42,7 @@ If you can clearly identify the nouns, adjectives, and adverbs in a sentence, yo
 
 **The key point is the modification relationship between different parts of speech.**
 
-Here are some examples are as followed:
+Here are some examples:
 
 ![alt text](./src/image1.png)
 
@@ -56,6 +56,59 @@ Here is an example:
 - The book that is extremely good.
 
 It is an attributive clause, and the elements after ‘that’ act as adjectives modifying ‘book’.
+
+As we already know, if you’ve learned the three lines I mentioned before, you’ve already completed the study of grammar. However, before that, we need to address six questions:
+
+- The concept of a sentence 句子的概念
+- The purpose of conjunctions 连词是干嘛的
+- Basic verb classifications (the five basic sentence structures of simple sentences) 动词的基础分类（简单句的五种基本句型）
+- The attributes and components of nouns 名词属性成分
+- The attributes and components of adjectives 形容词属性成分
+- The attributes and components of adverbs 副词属性成分
+
+We have already learned the last three questions before, so let's move on to the last three questions.
+
+## Sentence & Conjunction
+
+Simple sentence: Subject + Predicate Verb
+
+e.g., He smiled.
+
+Compound sentence: Use a conjunction to connect two simple sentences.
+
+e.g., He smiled, and I smiled.
+
+Here are some common mistakes:
+
+- I love you, you love me.
+- I love you you love me.
+
+These are examples of comma splice（逗号融合错误） and run-on sentence（粘连句）. 
+
+Two simple sentences with complete subject and predicate verb structures cannot be connected directly. Instead, you should use a conjunction to join them.
+
+Here are the corrected versions:
+
+- I love you, and you love me.
+- I love you and you love me.
+
+## Basic verb classifications
+
+You only need to know three kinds of verbs:
+
+- Transitive verbs (及物动词) e.g., I love you.
+
+- Intransitive verbs (不及物动词) e.g., He smiled.
+
+- Linking verbs (系动词) e.g., I am cool. That sounds good.
+
+Transitive verbs require an object after them, while intransitive verbs cannot take an object.
+
+Linking verbs are a bit different, but you can think of them as a symbol of equality.
+
+Aside from the linking verb 'be,' other linking verbs convey some special emotion.
+
+Now that you know what linking verbs are, you should list common linking verbs and review them.
 
 ## 形容词性成分1
 
