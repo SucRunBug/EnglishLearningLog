@@ -377,24 +377,24 @@ band-aids (small bandages used to cover minor wounds or cuts)
 
 ## 24
 
-I'd like him to patch up my crockery.
+I'd like him to patch (/pætʃ/ repair) up my crockery (/ˈkrɑkəri/ Dishes — plates, bowls, and cups).
 
-bone broth
+bone broth (/brɒθ/ soup)
 
-You muster all the strength you can to bash the front door of Enzo's shop.
+You muster (/ˈmʌstər/ gather) all the strength you can to bash (hit hard) the front door of Enzo's shop.
 
-What a strapping young lass Belle is!
+What a strapping (/stræp/ strong) young lass (/læs/ girl) Belle is!
 
-She managed to rouse you out of the house.
+She managed to rouse (/raʊz/ wake up) you out of the house.
 
 boost client base
 
-ceramic repairs
+ceramic (/səˈræmɪk/ baked clay) repairs
 
-high-spec computer
+high-spec (specifications) computer
 
-bleak
+bleak (/blik/ Something that is bleak is gloomy and depressing. If it's raining and dark, you might describe the night as bleak. If you have looked for work and no one will hire you, you could describe your prospects as bleak.) 
 
-the data is flawless
+the data is flawless (/ˈflɔlɪs/ not one mistake)
 
 kitchenware
