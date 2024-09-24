@@ -398,3 +398,77 @@ bleak (/blik/ Something that is bleak is gloomy and depressing. If it's raining 
 the data is flawless (/ˈflɔlɪs/ not one mistake)
 
 kitchenware
+
+huddling in a dingy corner
+
+gawking at people
+
+It's oozing melancholy
+
+rather intensely
+
+get this off my chest
+
+a maelstrom of prejudice and malice
+
+unequivocally
+
+a spectacular entrance
+
+improvised
+
+rookies
+
+scored
+
+stash two big perishable bundles into the fridge
+
+climax
+
+proposed
+
+chubby wee
+
+crew
+
+improv
+
+star-crossed
+
+vague memory
+
+wordy and cliche lines
+
+trope
+
+heroine
+
+be grounded by
+
+mansion
+
+confesses
+
+wind them up
+
+level with you
+
+whim
+
+thug
+
+immaterial
+
+GPS beacon
+
+clutches
+
+dastardly
+
+To be blunt
+
+a put-on cutesy voice pops up in a pink bubble inside your head
+
+wapped it around my belt
+
+I was fleeing for my life
