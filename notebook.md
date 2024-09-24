@@ -369,11 +369,11 @@ I can zone out when I'm training, and see my progress every step of the way.
 
 bragging
 
-You have to feign disinterest as you chuck it back on the shelf.
+You have to feign (/feɪn/) disinterest as you chuck it back on the shelf.
 
-got a bump or bruise
+got a bump (/bəmp/ a lump on the body caused by a blow) or bruise (/bruz/ an injury that doesn't break the skin but results in some discoloration)
 
-band-aids
+band-aids (small bandages used to cover minor wounds or cuts)
 
 ## 24
 
