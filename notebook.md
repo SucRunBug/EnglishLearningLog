@@ -374,3 +374,27 @@ You have to feign disinterest as you chuck it back on the shelf.
 got a bump or bruise
 
 band-aids
+
+## 24
+
+I'd like him to patch up my crockery.
+
+bone broth
+
+You muster all the strength you can to bash the front door of Enzo's shop.
+
+What a strapping young lass Belle is!
+
+She managed to rouse you out of the house.
+
+boost client base
+
+ceramic repairs
+
+high-spec computer
+
+bleak
+
+the data is flawless
+
+kitchenware
