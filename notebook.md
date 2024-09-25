@@ -472,3 +472,97 @@ a put-on cutesy voice pops up in a pink bubble inside your head
 wapped it around my belt
 
 I was fleeing for my life
+
+## 25
+
+scope out commissions
+
+has beefed up
+
+election
+
+station on the exits
+
+smugglers
+
+risks have skyrocketed
+
+small fry
+
+you pass up on commission
+
+Let's not get ahead of ourselves
+
+be sparsely populated
+
+quite a stir
+
+hijacking incident
+
+strike while the iron's hot
+
+seize throne
+
+defendant
+
+lawsuit
+
+right on cue
+
+catchphrase
+
+laidback attitude
+
+intersection
+
+did you strike it rich
+
+It was a stroke of luck that
+
+deputy manager
+
+invoice
+
+slashed
+
+jurisdiction
+
+take care of any loose ends
+
+explosive carnage
+
+stop meddling in things
+
+colluding with
+
+be chomped to pieces
+
+pettiness
+
+I worked my butt off to keep this info under wraps just for today.
+
+I've been itching to challenge him for a while now.
+
+simpleton
+
+be gunning for
+
+hooked on fighting manga
+
+tangible power
+
+confront sb.
+
+smug
+
+get roped into being the referee
+
+fugitive
+
+stashed
+
+they usually duke it out far away
+
+patch things up
+
+You must be beat
