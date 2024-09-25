@@ -566,3 +566,67 @@ they usually duke it out far away
 patch things up
 
 You must be beat
+
+roughing
+
+mayor
+
+woven
+
+be selling like hotcakes
+
+straw
+
+susceptible
+
+seeped through
+
+collapse
+
+vent
+
+compounds
+
+detonate an explosion
+
+treacherous
+
+I make a special cloth in memory of his sacrifice.
+
+miraculously
+
+feat
+
+pumped up
+
+wrinkles
+
+exfoliating face masks
+
+prestigious
+
+profits and business
+
+faction
+
+rep
+
+recruiting new members
+
+Brute strength and passion alone won't get you far
+
+momentary truce
+
+backburner
+
+diligent
+
+mustard
+
+turmeric powder
+
+I'm collateral damage
+
+flamethrower
+
+a snooze inducer
