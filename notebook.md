@@ -630,3 +630,57 @@ I'm collateral damage
 flamethrower
 
 a snooze inducer
+
+## 26
+
+mediates disputes
+
+bear honor or humiliation
+
+do odd jobs
+
+barricade
+
+bulldozed
+
+filthy thieves
+
+snatch our stuff
+
+a feeble lie
+
+small-time crooks
+
+grind off numbers engraved on a metal surface
+
+grinder
+
+meddling
+
+But while you were twiddlin' your thumbs, he built up a twenty-fight winning streak.
+
+bet you're shakin' in your boots
+
+I concede defeat
+
+cramped
+
+mettle
+
+rival
+
+itching
+
+impersonated
+
+tarnished out reputation
+
+mercenary
+
+partial
+
+You've got quite an appetite today. Must be because you've wrapped up your tasks.
+
+worrywart
+
+casualties
